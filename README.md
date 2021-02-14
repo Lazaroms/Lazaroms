@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LazaroMS₿
-- 👀 still studied programming and English
+- 👀 I studied basic programming and basic English
 - 🌱 I’m currently learning ...
 - 💞️ it's working really well without me.
 - 📫 https://www.linkedin.com/in/₿-lázaro-m-santos-42292093
