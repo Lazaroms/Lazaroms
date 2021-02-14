@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lazaroms
+- 👋 Hi, I’m @LazaroMS₿
 - 👀 still studied programming and English
 - 🌱 I’m currently learning ...
 - 💞️ it's working really well without me.
